@@ -17,7 +17,7 @@
 - Research & Development in ethical hacking and automation
 
 ## 📫 How to reach me...  
-📧 Email: clarence.asaf8@gmail.com  
+📧 Email: mirza.asaf18@gmail.com  
 📱 LinkedIn: www.linkedin.com/in/mirza-asaf
 
 ## ⚡ Fun fact:  
